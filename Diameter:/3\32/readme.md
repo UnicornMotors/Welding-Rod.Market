@@ -1,0 +1,3 @@
+- https://www.harborfreight.com/332-in-aws-e6013-welding-electrode-2-lb-63490.html
+- https://www.harborfreight.com/332-in-aws-e6011-welding-electrode-2-lb-63505.html
+- https://www.harborfreight.com/332-in-aws-e7018-welding-electrode-2-lb-63508.html
